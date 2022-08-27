@@ -1,4 +1,4 @@
-# Everestte kullandığımız v13 botlar
+# Everestte kullandığımız v12 botlar
 
 hey ordaki 🌟 Kahve seni önemsiyor :DDDDDDDDDDDDDD
 
